@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, im just a normal guy who wants to get better on things👋
 
 <!--
 **Alun035/Alun035** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
